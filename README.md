@@ -1,4 +1,4 @@
-- 👋 Hi, I’m a Bahadir.
+- 👋 Hi, I’m Bahadir.
 - 👀 I’m interested in learning softvare, ping pong, listening the music and fishing.
 - 🌱 I’m currently learning  softvare.
 - 💞️ I’m looking to collaborate on that interested.
