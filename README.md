@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Bahadir.
-- 👀 I’m interested in learning softvare, ping pong, listening the music and fishing.
-- 🌱 I’m currently learning  softvare.
+- 👀 I’m interested in learning software, ping pong, listening the music and fishing.
+- 🌱 I’m currently learning  software.
 - 💞️ I’m looking to collaborate on that interested.
 - 📫 you can reach me mubaslan@gmail.com.
 <!---
